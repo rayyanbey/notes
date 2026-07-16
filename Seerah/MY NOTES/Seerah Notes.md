@@ -31,12 +31,6 @@
 ## Lineage of prophetSAW
  - Arabized arabs are those who came in the land of arabs and settled whereas the pure arabs were in yemen the decendants of yarub and notable tribes that came here were aws and khazraj
  - His progeny continued through legal marriages all the way from Adam to him SAW
- - 
-
-
-
-
-
 
 
 - Death of Aminah 
