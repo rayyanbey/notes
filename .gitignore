@@ -1,6 +1,9 @@
 # Ignore workspace layout (stops your desktop and mobile UI from fighting)
 .obsidian/workspace.json
 .obsidian/workspace-mobile.json
+.obsidian/workspace.json
+.obsidian/graph.json
+.obsidian/appearance.json
 
 # Ignore system files
 .DS_Store
