@@ -1,0 +1,5 @@
+- People were asking about Qiyamah and they were disagreeing in it's existence but Allah said Nay they will know soon. 
+- Allah tells the things and wonders HE created such the sky, the mountains, the sun, the rain, the day and the night. My reflection is these creations of Allah shows HIS power, HE is able to create these and HE is able to call you and me for judgement because HE is the sole Power of this universe. #Qiyamah 
+- ˹So the deniers will be told,˺ “Taste ˹the punishment˺, for all you will get from Us is more torment.” #homeOfTransgressors #sinners 
+- The day is the ultimate truth, this statement is being said by the LORD of the World, so there shouldn't be any doubt in it's existence. #theTruth 
+- ![[Pasted image 20260725180542.png]] #IwishIwereDust #sinners #Kufr 
