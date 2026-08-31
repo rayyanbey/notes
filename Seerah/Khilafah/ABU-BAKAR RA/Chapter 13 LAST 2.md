@@ -14,3 +14,5 @@ In his final days, Abu Bakr remained steadfast, passing away on the 5th of Muhar
 - **Manners:** A lofty character and upright disposition that commanded universal respect.
 
 > Abu Bakr’s methodology as a ruler established a strong, stable, and prosperous nation that began in Al-Madeenah, extended throughout the Arabian Peninsula, and eventually reached far-off lands, providing a clear interpretation of the prophetic teachings for all future generations.
+
+test
