@@ -1,4 +1,4 @@
-
+#seerahUmarRA #Seerah #AbuBakr 
 ![[Pasted image 20260615202307.png]]
 
 - Prophet SAW and Abu bakar RA hired a polytheist to be their guide on this journey 

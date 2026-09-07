@@ -1,4 +1,4 @@
-
+#seerahUmarRA #Seerah #AbuBakr 
 - By the One Who has the soul of Abu Bakr in His Hand, had I thought that wild predatory animals would make off with me, I would still send out Usaamah’s army in accordance with what the Messenger of Allah #2 commanded Usaamah # to do. And even if I were the last person to remain in these cities, I would still do the same. #stance 
 - “It was the Messenger of Allah #% who appointed him, and now you are ordering me to dismiss him (from his position as leader of the army) #abubakarOnUsamaArmy 
 - For what harm will it do me to get my feet covered in dust as I walk in the way of Allah? #departureOfArmy 

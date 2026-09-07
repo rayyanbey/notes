@@ -1,4 +1,4 @@
-
+#seerahUmarRA #Seerah #AbuBakr 
 - the word ABU describes two things one is "father of" and second is "possessor of"
 - more the real name of abu bakar RA is not abu bakar it's Abdullah ibn uthman RA
 

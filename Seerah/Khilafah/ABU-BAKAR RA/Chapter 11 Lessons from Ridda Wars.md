@@ -1,4 +1,4 @@
-
+#seerahUmarRA #Seerah #AbuBakr 
 #Seerah #AbuBakr #RiddaWars #Khilafah #IslamicHistory #Leadership #Lessons
 
 #### The Strategic Legacy: Lessons and Morals of the Apostate Wars

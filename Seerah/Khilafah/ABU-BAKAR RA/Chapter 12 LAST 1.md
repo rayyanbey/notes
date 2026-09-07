@@ -1,4 +1,4 @@
-#Seerah #AbuBakr #Khilafah #IslamicHistory #KhalidIbnWaleed #Conquests #MilitaryStrategy #Governance
+#seerahUmarRA #Seerah #AbuBakr #Seerah #AbuBakr #Khilafah #IslamicHistory #KhalidIbnWaleed #Conquests #MilitaryStrategy #Governance
 
 Following the stabilization of Arabia, Abu Bakr prioritized the conquest of Iraq to expand the borders of the Muslim nation and address those who stood in the way of the propagation of Islam. Recognizing the Persian frontier as a strategic priority, Abu Bakr paved the way for a campaign that would test the state's military doctrines against an entrenched empire.
 

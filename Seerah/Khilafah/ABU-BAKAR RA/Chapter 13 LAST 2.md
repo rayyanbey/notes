@@ -1,4 +1,4 @@
-#Seerah #AbuBakr #Khilafah #IslamicHistory #UmarIbnKhattab #Succession #Leadership #Legacy
+#seerahUmarRA #Seerah #AbuBakr #Seerah #AbuBakr #Khilafah #IslamicHistory #UmarIbnKhattab #Succession #Leadership #Legacy
 
 ### The Transition of Authority: Appointment of Umar and the Death of Abu Bakr
 

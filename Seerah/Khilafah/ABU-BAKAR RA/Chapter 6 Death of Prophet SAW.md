@@ -1,4 +1,4 @@
-
+#seerahUmarRA #Seerah #AbuBakr 
   - According to imam al qurtubee, the greatest affliction a person can have is the affliction pertain to religion and the greatest affliction is the death of prophet SAW, the illumination of prophethood went out, the revelation stopped, and the umbrella of a leader disappeared. 
   - ![[Pasted image 20260630191912.png]]
   - this ayah and the incident shows the bravery of abu bakar RA, bravery is to be firm and steadfast during the time of calamity #DefinitionOfbravery 

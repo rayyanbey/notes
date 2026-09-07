@@ -1,4 +1,4 @@
-
+#seerahUmarRA #Seerah #AbuBakr 
 - Abu bakar RA fought every battle in which prophet SAW took part. 
 - A general at the time of tabuk and fearless in battle although people think of him as faint hearted or physically weak but he was totally in the battle.
 

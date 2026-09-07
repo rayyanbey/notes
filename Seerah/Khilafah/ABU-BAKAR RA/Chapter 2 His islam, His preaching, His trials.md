@@ -1,4 +1,4 @@
-
+#seerahUmarRA #Seerah #AbuBakr 
 
 #### First: His Islam
  - As the prophet SAW said that every person is born on true innate nature, it's the parents who make them chirstian etc. Abu Bakar RA before the acceptance of islam was very true on his innate nature as we discussed in chapter one and especially here #abubakarAndIbrahimAS . 

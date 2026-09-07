@@ -74,3 +74,5 @@ The _Hijrah_ was a strategic relocation to establish a sovereign state. While 
 - **Morale Recovery #AyyashIbnAbiRabeeah:** When Ayyash and Hisham ibn al-'As were eventually detained in Makkah, 'Umar utilized **Surah Az-Zumar (39:53-55)** as a strategic communication tool. He sent these verses to the prisoners to remind them not to despair of Allah’s mercy, successfully preventing their apostasy and encouraging their eventual escape.
 
 **Transformation Complete** By the time 'Umar settled in Madeenah, his transformation was complete. He had evolved from a champion of the _Jahiliyah_ to the "Criterion" (_Al-Farooq_) and a primary advisor to the Prophet. This formative period established the discipline and strategic foresight necessary for his future role. 'Umar was now fully prepared for the administrative and legislative challenges of the burgeoning Madeenan state.
+
+#seerahUmarRA #Seerah #AbuBakr 

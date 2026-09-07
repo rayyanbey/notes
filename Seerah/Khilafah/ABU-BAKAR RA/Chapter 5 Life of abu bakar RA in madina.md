@@ -1,3 +1,4 @@
+#seerahUmarRA #Seerah #AbuBakr 
 ### Encounter with Finhaas
  - ![[Pasted image 20260627182039.png]]
 - Meeting of Abubakar RA with a jewish rabbi who was blasphemous towards Allah. 

@@ -1,4 +1,4 @@
-
+#seerahUmarRA #Seerah #AbuBakr 
 - first private allegiance then a public appeareance for the baiyah. 
 - vote cannot be used as a term to describe baiyah in modern terms. 
 - if i obey Allah and his messenger obey me and if i donot then no obedience for me
