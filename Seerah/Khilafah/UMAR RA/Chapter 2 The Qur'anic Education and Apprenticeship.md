@@ -81,3 +81,16 @@
 - One idea came to my mind, in makkah in order to replace the idol worship and other mushrik activites, Prophet SAW just didn't said come to deen of Allah Khalas, He SAW gave the exact replacement as it should be given. a parallel system to replace the bottom in makkah and then in madinah to replace the top. #System #ParallelSystem 
 
 #seerahUmarRA #Seerah #AbuBakr 
+
+
+#### Part 2 The coinciding of umar ra opinions 
+- The suggestion of maqam e ibrahim as a prayer spot, observing the Hijab #hijab
+- The funeral of abdullah bin ubai, Umar RA insisted the prophet SAW not to lead the funeral as abdullah bin ubai was enemy of Islam and had done these evils. But prophet SAW still lead it but after a while Allah revealed this ayah  #funeralOfHypocrites 
+  ***"And do not ever offer ˹funeral˺ prayers for any of their dead, nor stand by their grave ˹at burial˺, for they have lost faith in Allah and His Messenger and died rebellious." (9:84)***
+- The prisoners of badr was a great event, in which UMAR RA suggested to kill the prisoners by their own kin, but Prophet SAW and Abubakar RA didn't accepted it, after a while Allah revealed the following verse: #PrisonersOfBadr
+     "***It is not fit for a prophet that he should take captives until he has thoroughly subdued the land. You ˹believers˺ settled with the fleeting gains of this world, while Allah’s aim ˹for you˺ is the Hereafter. Allah is Almighty, All-Wise.Had it not been for a prior decree from Allah, you would have certainly been disciplined with a tremendous punishment for whatever ˹ransom˺ you have taken***" **(8:67-68)**
+  - ***"Why is it when you suffered casualties ˹at Uḥud˺—although you had made your enemy suffer twice as much ˹at Badr˺—you protested, “How could this be?”? Say, ˹O Prophet,˺ “It is because of your disobedience.” Surely Allah is Most Capable of everything.*(3:165)"**** 
+  - (Say, "It is from yourselves.") Ibn Abi Hatim recorded that `Umar bin Al-Khattab said, "When Uhud occurred, a year after Badr, Muslims were punished for taking ransom from the disbelievers at Badr in return for releasing the Mushriks whom they captured in that battle. Thus, they suffered the loss of seventy fatalities and the Companions of the Messenger of Allah gave flight and abandoned him. The Messenger suffered a broken tooth, the helmet was smashed on his head and blood flowed onto his face. Allah then revealed,
+- Once prophet SAW asked an ansari slave to call Umar RA from Home, He was sleeping and part of his body was exposed, umar RA said to Prophet SAW i wished Allah give us some commands regarding entering the houses. Then Allah revealed these verses: #CommandsOnEnteringOnesHouse 
+     ***O believers! Let those ˹bondspeople˺ in your possession and those of you who are still under age ask for your permission ˹to come in˺ at three times: before dawn prayer, when you take off your ˹outer˺ clothes at noon, and after the late evening prayer. ˹These are˺ three times of privacy for you. Other than these times, there is no blame on you or them to move freely, attending to one another. This is how Allah makes the revelations clear to you, for Allah is All-Knowing, All-Wise. (24:58)*** 
+- Prohibition of Alchohol in which UMAR ra said O Allah clarify this matter for once and for all. 
