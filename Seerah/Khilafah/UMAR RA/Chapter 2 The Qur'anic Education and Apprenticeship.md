@@ -94,3 +94,30 @@
 - Once prophet SAW asked an ansari slave to call Umar RA from Home, He was sleeping and part of his body was exposed, umar RA said to Prophet SAW i wished Allah give us some commands regarding entering the houses. Then Allah revealed these verses: #CommandsOnEnteringOnesHouse 
      ***O believers! Let those ˹bondspeople˺ in your possession and those of you who are still under age ask for your permission ˹to come in˺ at three times: before dawn prayer, when you take off your ˹outer˺ clothes at noon, and after the late evening prayer. ˹These are˺ three times of privacy for you. Other than these times, there is no blame on you or them to move freely, attending to one another. This is how Allah makes the revelations clear to you, for Allah is All-Knowing, All-Wise. (24:58)*** 
 - Prohibition of Alchohol in which UMAR ra said O Allah clarify this matter for once and for all. 
+
+
+### His knoweldge of the reasons of revelations
+
+- Umar RA knew a lot of reasons of revelations of multiple verses of Quran, and in fact he was the reasons himself for some ayahs as discussed above. 
+- Umar RA memorized quran with the reasons of revelations and those ayahs which were revealed before him, he just memorized them in general. 
+- For example the Ayah of completion of deen, Umar ra said this was revealed on the evening of arafah on friday. 
+- Umar RA listened and asked to the explainations of certain ayah by Prophet SAW such as the ayah in which Allah explains the progieny of adam divided in 2 parts one for paradise and one for hell. 
+- Umar RA tried to avoid commenting on Quran on the basis of own opinion.
+
+### Umar RA commenting on quran
+- He only provided explanations for verses when he had directly heard the commentary from the Messenger of Allah. #Tafseer 
+- For example the explaination of surah dhariayt he explained the ayahs and said if i didn't listened it from prophet SAW i wouldn't say it. #TafseerMethodOfUmarRA 
+- His methodology was if rasul SAW said it khalas and if not then he would consult sahaba who had expertise in this matter such as Abdullah ibn Abbas, ibn masood, ubayi bin kaab and muadh ibn jabal RA. 
+     ###### Some commentaries of Umar RA
+     - who say, when struck by a disaster, “Surely to Allah we belong and to Him we will ˹all˺ return.” They are the ones who will receive Allah’s blessings and mercy. And it is they who are ˹rightly˺ guided.  umar ra said what a reward and what a bonus, with reward he meant blessings and mercy and with bonus he meant right path. #TafseerExample1 
+     - O humanity! What has emboldened you against your Lord, the Most Generous, umar ra said this means ignorance. #TafseerExample2  Adding on it a person becomes ignorant by the environment he is surrounded by material, ideas and other worldly matters. 
+     - O believers! Turn to Allah in sincere repentance, umar ra said repenting and not going back to the sin is the complete repentance that is required. 
+     - Quran 88: 3-4 (Laboring, weary.) meaning, they did many deeds and became weary in their performance, yet they will be cast into a blazing Fire on the Day of Judgement. Al-Hafiz Abu Bakr Al-Burqani narrated from Abu `Imran Al-Jawni that he said, " `Umar bin Al-Khattab passed by the monastery of a monk and he said: `O monk!' Then the monk came out, and `Umar looked at him and began to weep. Then it was said to him: `O Commander of the faithful! Why are you weeping' He replied: `I remembered the statement of Allah, the Mighty and Majestic, in His Book,
+     - Jibt means witchcraft and taghoot as shaytan, ![[Pasted image 20261006172630.png]], Quran 4:51. 
+### Company of Prophet SAW
+- ![[Pasted image 20261006173710.png]]
+- #knowledgeOfUmarRA 
+- Ibn Hajar said: "What is meant by knowledge here is knowledge of how to deal with people according to the Book of Allah and the Sunnah of the Messenger of Allah." This knowledge could not be acquired by anyone except one who strove hard to learn that which might help him to understand the Book of Allah and the Sunnah of His Prophet. The means to achieve that are: immersing oneself in study of Arabic language and literature, and being acquainted with all its literary styles, as well as acquiring all the knowledge and experience that will enable one to understand it.
+- 'Umar established an agreement with an Ansâri neighbor (from Banu Umayyah ibn Zayd). They took turns attending the Prophet's gatherings every other day so that neither would miss new Quranic revelations, Hadiths, or public news #TheIntentToseekKnowledge 
+- Umar RA used to sit close to the Prophet SAW and left in the last #AdabOfIlm 
+- When 'Umar requested permission to perform _'Umrah_, the Prophet (SAW) affectionately said to him, _"Do not forget us in your du'â', O my brother,"_ a phrase 'Umar cherished above all else. #LoveofProphetSAWforUmar

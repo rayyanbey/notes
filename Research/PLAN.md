@@ -1,6 +1,6 @@
 
 ### Sequence 
-- Prophet ﷺ — leadership & identity formation (psychology of mission
+- ~~Prophet ﷺ — leadership & identity formation (psychology of mission~~
 - Rashidun — governance & moral authority (institutionalization)
 - The Umayyads — power, culture, and identity shifts
 - The Abbasids — knowledge, pluralism & identity growth
@@ -55,3 +55,4 @@ Time line: 1st Feb 2026 to 1st Feb 2027
 
 
 
+March april may june july aug september (seerah and abubakr ra only)
